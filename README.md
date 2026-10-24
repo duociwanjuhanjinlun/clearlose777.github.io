@@ -1,4 +1,3 @@
-# clearlose777.github.io
 # Shunhong Wu
 
 PhD student  
